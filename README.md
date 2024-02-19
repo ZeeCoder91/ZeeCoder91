@@ -1,3 +1,3 @@
-### Hello! My name is Zsalondi there 👋
+### Hello! My name is Zsalondi👋
 
 
